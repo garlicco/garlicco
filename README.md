@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **azib.amir@gmail.com**
 
-- ⚡ Fun fact **I'm obsessed with musci**
+- ⚡ Fun fact **I'm obsessed with music**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
